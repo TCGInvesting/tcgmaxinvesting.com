@@ -1,1 +1,0 @@
-# tcgmaxinvesting.com
